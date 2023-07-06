@@ -1,1 +1,0 @@
-hada file diali
